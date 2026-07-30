@@ -1,1 +1,0 @@
-# website-stimmapp-org
